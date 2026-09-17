@@ -226,4 +226,4 @@ Injustice 2 is offered as the complete free version with all features and update
 Get ready to step into the arena and unleash your inner hero! **Download Injustice 2 free today and join the fight!**
 
 ---
-**Last updated:** 2026-09-17 17:59:31 UTC
+**Last updated:** 2026-09-17 21:16:23 UTC
